@@ -1,1 +1,0 @@
-# test-object-2locsmd8kba
